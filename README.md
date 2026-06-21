@@ -74,6 +74,4 @@ If you have any questions regarding this Privacy Policy, please contact:
 
 Dhaval Talekar
 
-Email: [YOUR EMAIL ADDRESS]
-
 App Name: My Restaurant Manager

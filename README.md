@@ -1,0 +1,1 @@
+# My-Restaurant-Manager-privacy-policy
